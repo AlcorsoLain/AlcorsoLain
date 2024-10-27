@@ -19,4 +19,4 @@
 #### *Cloud and providers*
 [![My Skills](https://skillicons.dev/icons?i=vercel&theme=dark)](https://skillicons.dev)
 ## Have a good day! 🤯 
-<center><img src="https://bl6pap003files.storage.live.com/y4my5upuKhpSSeI-ujE9DUqJ5jO6onARNyOCu3SKa-43_w9lzSxT8MsKxH4ltVmFtGmSkdcrRJilO1TlywO41fT2k1I744z7a9SwzG9yiyYh6SttJ-lzxwOZiGIvRfyI7i2XVA8vzYQgLQEWtMygCb3YQTgtnbf-4Rhl7ufBjM4urrFeE37Agp8cnRMRjH9SZPr?width=269&height=350&cropmode=none" width="269" height="350" /></center>
+<center><img src="https://media1.tenor.com/m/2fDPAEGo1vAAAAAC/alfred-marko.gif" width="269" height="350" /></center>
